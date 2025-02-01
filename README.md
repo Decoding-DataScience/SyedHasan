@@ -61,7 +61,7 @@
 
 ## 📫 Let's Connect!  
 
-🔗 [**LinkedIn**]([https://www.linkedin.com/in/syedhasan](https://www.linkedin.com/in/syedalihasannaqvi/))  
+🔗 [**LinkedIn**](https://www.linkedin.com/in/syedalihasannaqvi/)  
 📧 **Email**: syed.hasan@outlook.com  
 🌐 [**Portfolio Website**](https://syed-hasan.com)  
 
