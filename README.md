@@ -61,9 +61,9 @@
 
 ## 📫 Let's Connect!  
 
-🔗 [**LinkedIn**](https://www.linkedin.com/in/syedhasan)  
-📧 **Email**: syedhasan@example.com  
-🌐 [**Portfolio Website**](https://syedhasan.dev)  
+🔗 [**LinkedIn**]([https://www.linkedin.com/in/syedhasan](https://www.linkedin.com/in/syedalihasannaqvi/))  
+📧 **Email**: syed.hasan@outlook.com  
+🌐 [**Portfolio Website**](https://syed-hasan.com)  
 
 ---
 
